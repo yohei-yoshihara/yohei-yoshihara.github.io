@@ -1,1 +1,0 @@
-# yohei-yoshihara.github.io
